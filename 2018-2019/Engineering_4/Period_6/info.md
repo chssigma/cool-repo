@@ -9,4 +9,6 @@ Jonah N. | [jnewman59](https://github.com/jnewman59) | I made ice cream with a p
 Ben L. | [blepsch57](https://github.com/blepsch57) | I own a miniature crossbow.
 Vincent P. |[vpearce14](https://github.com/vpearce14) | I got stuck on the roof of the school once.
 Amara G. | [agreen09](https://github.com/agreen09) | I'm bad at thinking of fun facts.
+Claire M.| [cmunro97](https://github.com/cmunro97) | Jack was my partner for the midterm.
+Rachel N.| [rneygri80](https://github.com/rneygri80)| I ditched claire during the midterm for barrett.
 Barrett C. | [bcrussin](https://github.com/bcrussin) | I can play Careless Whisper on the sax.
