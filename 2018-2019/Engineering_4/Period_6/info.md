@@ -10,3 +10,5 @@ Ben L. | [blepsch57](https://github.com/blepsch57) | I own a miniature crossbow.
 Vincent P. |[vpearce14](https://github.com/vpearce14) | I got stuck on the roof of the school once.
 Amara G. | [agreen09](https://github.com/agreen09) | I'm bad at thinking of fun facts.
 Barrett C. | [bcrussin](https://github.com/bcrussin) | I can play Careless Whisper on the sax.
+Adam M. | [amorela10](https://github.com/amorela10) | My hair is dyed :).
+
