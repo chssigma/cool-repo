@@ -12,4 +12,5 @@ Amara G. | [agreen09](https://github.com/agreen09) | I'm bad at thinking of fun 
 Barrett C. | [bcrussin](https://github.com/bcrussin) | I can play Careless Whisper on the sax.
 Sophia G. | [sgreenh23](https://github.com/sgreenh23) | I love fruit.
 Hallie P-S | [cpughse63](https://github.com/cpughse63) | I've lived in Australia and California. 
-
+Elodie P. | [eprice70](https://github.com/eprice70) | I'm Canadian.
+Jack D-H. | [jdreese79](https://github.com/jdreese79) | I have red hair.
