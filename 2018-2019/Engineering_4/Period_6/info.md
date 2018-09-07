@@ -11,4 +11,4 @@ Vincent P. |[vpearce14](https://github.com/vpearce14) | I got stuck on the roof 
 Amara G. | [agreen09](https://github.com/agreen09) | I'm bad at thinking of fun facts.
 Barrett C. | [bcrussin](https://github.com/bcrussin) | I can play Careless Whisper on the sax.
 Adam M. | [amorela10](https://github.com/amorela10) | My hair is dyed :).
-
+Joe v. | [jvonsto63](https://github.com/jvonsto63) | I have brown hair.
