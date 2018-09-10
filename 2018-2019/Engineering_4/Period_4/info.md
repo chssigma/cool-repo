@@ -11,3 +11,5 @@ Molly R. | [mriddle54](https://github.com/mriddle54) | I like running and horseb
 Jack A. | [jantes86](https://github.com/jantes86) | I love furthering my deep connection to nature and the world around me
 James O. | [TheJobrien89](https://github.com/TheJobrien89) | I'm always the jester for whatever reason.
 Gabby W. and Kaylee F. | [jorgeraspberrypi](https://github.com/jorgeraspberrypi) | We are one and we like chicken tenders! <3
+Owen G. | [oguiffre](https://github.com/oguiffre) | I love to fence!!
+Luca S. | [lsun89](https://github.com/lsun89) | I enjoy taking MAP tests in my spare time.
