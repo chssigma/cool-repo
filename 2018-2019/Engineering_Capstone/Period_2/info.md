@@ -10,3 +10,4 @@ Will I. | [winigo41](https://github.com/winigo41) | I just got a lab puppy named
 Cole F. | [ccfair](https://github.com/ccfair) | My pup Simone is 2
 Dani S. | [dszabo236](https://github.com/dszabo236) | I just got a turtle name Fred.
 Kennan M. | [AbsolutelyRightSir](https://github.com/AbsolutelyRightSir) | I don't have any fun facts
+Lena K. | [lenakkees](https://github.com/lenakkees) | I have a black goldendoodle named Erwin! 
