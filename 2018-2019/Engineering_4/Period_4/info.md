@@ -13,3 +13,4 @@ James O. | [TheJobrien89](https://github.com/TheJobrien89) | I'm always the jest
 Gabby W. and Kaylee F. | [jorgeraspberrypi](https://github.com/jorgeraspberrypi) | We are one and we like chicken tenders! <3
 Owen G. | [oguiffre](https://github.com/oguiffre) | I love to fence!!
 Luca S. | [lsun89](https://github.com/lsun89) | I enjoy taking MAP tests in my spare time.
+Jasper C. & Jack H. | [jasacrum](https://github.com/jasacrum) | I have a tail.
