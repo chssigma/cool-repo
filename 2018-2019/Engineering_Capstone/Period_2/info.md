@@ -13,3 +13,5 @@ Nick S. | [Nicksif](https://github.com/Nicksif) | I have a cat who is 1 and a do
 Kennan M. | [AbsolutelyRightSir](https://github.com/AbsolutelyRightSir) | I don't have any fun facts
 Olivia B. | [obearman](https://github.com/obearman) | cats are coool 
 Lena K. | [lenakkees](https://github.com/lenakkees) | I have a black goldendoodle named Erwin! 
+Yakob D. | [lilyuk](https://github.com/lilyuk) | I recently applied to G.O.A.T university and got in!
+ 
